@@ -1,10 +1,11 @@
-- 👋 Hi, I’m @dickbags21
+- 👋 Hi, I’m dirtbagjim
 - 👀 I’m interested in getting money
 - 🌱 I’m currently learning to hack
-- 💞️ I’m looking to collaborate on getting $$$$
-- 📫 How to reach me jimthayer4@gmail.com
-- 😄 Pronouns: MAN
-- ⚡ Fun fact: ive ben to prison and im not a rat. come fuck with me
+- 💞️ I’m looking to collaborate on the basics im new and want to
+- stay intersted!
+- 📫 How to reach me @dirtbagjim@proton.me- 😄 Pronouns: MAN
+- ⚡ I have the drive to go places
+- recovering addtict 3 years now!
 
 <!---
 dickbags21/dickbags21 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
